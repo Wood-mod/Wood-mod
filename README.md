@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Wood-mod
-- 👀 I’m interested in 𓄂⍣⃝𝐆𝚯𝐃𝄟✮͢≛⃝W☠︎☠︎𝐃┗ £𖣘SKψ𝄟
-- 🌱 I’m currently learning BREDA
-- 💞️ I’m looking to collaborate on BREDA
-- 📫 How to reach me BREDA
+- 👋 Hi, I’m BREDA
+- 👀 I’m interested in GOD KOLOSMY
+- 🌱 I’m currently learning𓄂⍣⃝𝐆𝚯𝐃𝄟✮͢≛⃝W☠︎☠︎𝐃┗ £𖣘SKψ𝄟
+- 💞️ I’m looking to collaborate on WhatsApp
+- 📫 How to reach me a vous
 - 😄 Pronouns: BREDA
 - ⚡ Fun fact: BREDA
 
